@@ -1,0 +1,1 @@
+- hello, i'm ozzy! i'm a digital artist who's looking into coding and video game programming ^^
